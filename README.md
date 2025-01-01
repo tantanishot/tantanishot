@@ -1,5 +1,6 @@
-![Project Demo](https://imgur.com/a/2ohbkoA)
-## A𝚋𝚘𝚞𝚝 𝙼𝚎
+
+## A𝚋𝚘𝚞𝚝 𝙼𝚎![Uploading thegiftristan - Made with Clipchamp.gif…]()
+
 - 🖥 Someone who explores the world in the computer and outside the computer
 - 🏫Student at University of Washington Bothell
 
