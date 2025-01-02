@@ -1,5 +1,9 @@
 
-## A𝚋𝚘𝚞𝚝 𝙼𝚎![Uploading thegiftristan - Made with Clipchamp.gif…]()
+   ![thegiftristan-MadewithClipchamp-ezgif com-crop](https://github.com/user-attachments/assets/54bb3eec-4a27-486c-83c8-5cccd76591ef)
+
+
+
+## A𝚋𝚘𝚞𝚝 𝙼𝚎!
 
 - 🖥 Someone who explores the world in the computer and outside the computer
 - 🏫Student at University of Washington Bothell
@@ -16,11 +20,11 @@
 	- None as of right now
 
 ## 🔔 𝙼𝚢 𝙻𝚊𝚝𝚎𝚜𝚝 𝙶𝚒𝚝𝙷𝚞𝚋 𝙰𝚌𝚝𝚒𝚟𝚒𝚝𝚢
-
+-wip
 
 
 ## 🔔 𝙼𝚢 𝙻𝚊𝚝𝚎𝚜𝚝 𝙶𝚒𝚝𝙷𝚞𝚋 𝙼𝚎𝚝𝚛𝚒𝚌𝚜
-
+-wip
 
 ## 📫 Where to reach out to me
 Follow my socials!
