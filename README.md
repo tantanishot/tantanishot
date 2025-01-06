@@ -7,6 +7,8 @@
 
 - 🖥 Someone who explores the world in the computer and outside the computer
 - 🏫Student at University of Washington Bothell
+- UW Mens Volleyball Club Player
+- 🇵🇭
 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
 - 🔨 𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢...
@@ -16,8 +18,9 @@
 - 🤞 𝙾𝚗𝚎 𝚍𝚊𝚢 𝙸 𝚑𝚘𝚙𝚎 𝚝𝚘...
 	- 𝙶𝚘 hiking in Mt St Helens!
 	- Install Assembly (oh hell nah)
+   	- Becoming a Leetcode God
 - 🤔 𝙻𝚒𝚜𝚝s of current problems i have...
-	- None as of right now
+	- Becoming a Leetcode God
 
 ## 🔔 𝙼𝚢 𝙻𝚊𝚝𝚎𝚜𝚝 𝙶𝚒𝚝𝙷𝚞𝚋 𝙰𝚌𝚝𝚒𝚟𝚒𝚝𝚢
 -wip
