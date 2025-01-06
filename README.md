@@ -5,9 +5,9 @@
 
 ## A𝚋𝚘𝚞𝚝 𝙼𝚎!
 
-- 🖥 Someone who explores the world in the computer and outside the computer
-- 🏫Student at University of Washington Bothell
-- UW Mens Volleyball Club Player
+- 🖥  Someone who explores the world in the computer and outside the computer
+- 🏫 Student at University of Washington Bothell
+- 🏐 UW Mens Volleyball Club Player
 - 🇵🇭
 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
