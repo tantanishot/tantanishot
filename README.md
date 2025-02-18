@@ -7,17 +7,17 @@
 
 - 🖥  Someone who explores the world in the computer and outside the computer
 - 🏫 Student at University of Washington Bothell
-- 🏐 UW Mens Volleyball Club Player
+- 🏐 I like to play volleyball!
+- I love hiking!
 - 🇵🇭
 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
 - 🔨 𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢...
 ```yaml
-- Developing a facial recognition app
+- leetcoding forever
 ```
 - 🤞 𝙾𝚗𝚎 𝚍𝚊𝚢 𝙸 𝚑𝚘𝚙𝚎 𝚝𝚘...
 	- 𝙶𝚘 hiking in Mt St Helens!
-	- Install Assembly (oh hell nah)
    	- Becoming a Leetcode God
 - 🤔 𝙻𝚒𝚜𝚝s of current problems i have...
 	- Becoming a Leetcode God
