@@ -6,7 +6,7 @@
 ## A𝚋𝚘𝚞𝚝 𝙼𝚎!
 
 - 🖥  Someone who explores the world in the computer and outside the computer
-- 🏫 Student at University of Washington Bothell
+- 🏫 Student at University of Washington 
 - 🏐 I like to play volleyball!
 - I love hiking!
 - 🇵🇭
